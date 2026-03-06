@@ -1,1 +1,1 @@
-![](https://media.discordapp.net/attachments/1380193581356154993/1477112375550148670/jpeg.jpg?ex=69ac2559&is=69aad3d9&hm=2b87b52b518b7714b6428736c3da68984b8ffc241b990dd985cb920e74725d26&=&format=webp&width=124&height=70)
+![](https://media.discordapp.net/attachments/1380193581356154993/1474555734870986924/shortstamp.gif?ex=69ac12cb&is=69aac14b&hm=31fb6204e5f83ec8b08913e293792431724ab38b5f8412ca902e3e5c3788c457&=&width=100&height=100)
